@@ -1,0 +1,1 @@
+<p>If you need any assistance with the site, feel free to call Rich Interactive @ 316.516.0894 or email <a href="mailto:rb@richinteractive.co">rb@richinterctive.co</a></p>
